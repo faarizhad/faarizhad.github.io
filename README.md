@@ -1,1 +1,1 @@
-# faarizhad.github.io
+# faarizhad
